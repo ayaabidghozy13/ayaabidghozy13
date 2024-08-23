@@ -25,3 +25,4 @@ I'm an IoT Engineering student with a deep passion for integrating technology in
 - [Twitter](https://x.com/ayaabidghozy13)  
 - [Discord](https://discord.com/your-profile-link)  
 - [Instagram](https://www.instagram.com/ayaabid7?igsh=MXQxdzJxNXN5aWxzcg==)
+- [linkedIn](https://www.linkedin.com/in/aya-abid-ba4139285/)
